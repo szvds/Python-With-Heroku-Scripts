@@ -1,2 +1,2 @@
 Mass DM Bot Only For Educational Purposed Script By Tutorial-Z (Edited)
-For Support Purposes DM Tech By Ravi#2419
+For Support Purposes DM Tech By Fliems#0001
